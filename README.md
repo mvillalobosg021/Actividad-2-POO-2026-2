@@ -1,1 +1,1 @@
-# Actividad-2-POO-2026-2
+Actividad-2-POO-2026-2, Mariana Villalobos Giraldo, DOCENTE:Walter Hugo Arboleda Mazo
